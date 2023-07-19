@@ -1,6 +1,6 @@
 ### Hi there, I'm Marjorie Luize.
 
-- I'm currently looking for an internship
+- I'm looking for an internship
 - Currently learning Power BI
 - Pronouns: She/her
 
